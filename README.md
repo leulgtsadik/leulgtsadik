@@ -17,8 +17,8 @@ I'm **Leul G. Tsadik** (a.k.a. @leulgtsadik), a passionate **Electrical Power an
 ---
 
 ## 📫 Let's Connect  
-- 💼 [LinkedIn](#)  
-- 📧 Email: [youremail@example.com](mailto:youremail@example.com)  
+- 💼 [LinkedIn](https://www.linkedin.com/in/leul-gebretsadik-683260322/)  
+- 📧 Email: [leulgebretsadikbeyene@gmail.com](mailto:leulgebretsadikbeyene@gmail.com)  
 - 😄 Pronouns: **He/Him**  
 
 ---
